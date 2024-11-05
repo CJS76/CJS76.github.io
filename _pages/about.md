@@ -16,4 +16,4 @@ First-class Scholarship for the in the academic year 2022-2023;
 Outstanding Student Leader in the academic years 2021-2023;
 Third Prize of the 18th Challenge Cup Technological Works Competition in May 2023;
 Nanchang University Student Innovation and Entrepreneurship Program Project Completion Certificate.
-[Email](mailto:js.chen@email.ncu.edu.cn)
+Email: js.chen@email.ncu.edu.cn
